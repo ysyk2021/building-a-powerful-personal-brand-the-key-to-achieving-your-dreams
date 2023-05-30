@@ -15,4 +15,4 @@ This book offers a comprehensive guide to building a powerful personal brand, pr
 
 Whether you're a seasoned professional looking to take your career to the next level or a recent graduate just starting out, this book is an essential resource for anyone looking to build a powerful personal brand and achieve their dreams. With its practical insights, real-world examples, and actionable advice, this book provides a comprehensive and authoritative guide to personal branding that is sure to be a valuable asset for years to come.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.

@@ -1,5 +1,3 @@
-Techniques for Crafting an Effective Personal Story
-===============================================================================================
 
 Crafting an effective personal story is a crucial step in developing a powerful brand narrative. In this chapter, we will discuss techniques for crafting an effective personal story.
 

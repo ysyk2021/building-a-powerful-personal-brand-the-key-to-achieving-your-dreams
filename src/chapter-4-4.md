@@ -1,5 +1,3 @@
-Building a Culture of Connection and Engagement
-===========================================================================================
 
 Your personal brand narrative is the story you tell about yourself that communicates who you are, what you stand for, and what you have to offer. A strong brand narrative can help build a culture of connection and engagement that resonates with your target audience and helps you achieve your goals.
 

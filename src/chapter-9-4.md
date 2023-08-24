@@ -1,5 +1,3 @@
-Building a Legacy of Purpose and Impact
-================================================================================================
 
 Building a powerful personal brand is an ongoing process that requires continuous effort and attention. In this chapter, we will explore strategies for maintaining and evolving your personal brand over time, and building a legacy of purpose and impact.
 

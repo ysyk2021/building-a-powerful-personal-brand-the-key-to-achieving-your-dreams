@@ -1,5 +1,3 @@
-Building Trust in the Process of Personal Branding
-============================================================================================================
 
 In this chapter, we will explore the basics of personal branding and how building trust is essential to the process. We will define personal branding, discuss why it's important, and provide strategies for building trust with your audience.
 

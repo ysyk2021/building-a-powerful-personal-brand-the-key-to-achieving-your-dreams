@@ -1,5 +1,3 @@
-Chapter 4: Creating Visual Brand Elements
-=========================================
 
 Visual brand elements are an essential component of any powerful personal brand. In this chapter, we will explore techniques for creating effective visual brand elements that align with your personal brand and support your long-term career goals.
 

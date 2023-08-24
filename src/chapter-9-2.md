@@ -1,5 +1,3 @@
-Techniques for Adapting Your Personal Brand as Your Goals and Values Change
-====================================================================================================================================
 
 As your goals and values change over time, it's important to adapt your personal brand accordingly. In this chapter, we will discuss techniques for adapting your personal brand and staying true to yourself as you evolve.
 

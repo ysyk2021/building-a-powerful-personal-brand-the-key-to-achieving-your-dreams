@@ -1,5 +1,4 @@
-Chapter: Identifying Different Components of a Personal Brand
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the various components that make up a personal brand. By understanding and identifying these different elements, individuals can strategically develop and manage a cohesive and powerful personal brand that aligns with their goals and aspirations.
 

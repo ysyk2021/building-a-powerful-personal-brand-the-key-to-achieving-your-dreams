@@ -1,5 +1,4 @@
-Chapter: Overview of Personal Branding Theory
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we provide an overview of personal branding theory, exploring the fundamental concepts and principles that underpin the process of building a powerful personal brand. Understanding the theory behind personal branding is crucial for developing a strategic and effective approach to shaping your personal brand identity.
 
